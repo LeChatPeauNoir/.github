@@ -11,4 +11,5 @@ LeChatPeauNoir ( ou LCPN )  est une artiste comfirmée, prête à embellir votre
 ***
 ## à venir ...
 Les produits ( vous savez la lenteur des procédures administratives ... )
-###### LeChatPeauNoir                                                                                                                                                                                                 ###### Tout droits réservés
+###### LeChatPeauNoir 
+###### Tout droits réservés
